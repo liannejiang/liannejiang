@@ -1,1 +1,1 @@
-Welocme to my Github, I'm Lianne!
+Wish to be a cybersecurity pro, wish me luck.
